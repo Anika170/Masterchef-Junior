@@ -1,0 +1,1 @@
+whisk eggs and add flour in even parts. Then add sugar and milk. 
